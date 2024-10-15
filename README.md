@@ -2,7 +2,7 @@
 - 👀 I’m interested in entemology.
 - 🌱 I’m currently learning 8th grade.
 - 💞️ I’m looking to collaborate on stuffs
-- 📫 How to reach me ... (I dunno...)
+- 📫 How to reach me ... (you don't...)
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I live in a family of 8.
 
